@@ -1,0 +1,1 @@
+# Faren-2306052-PraktikumSistem-Pakar-Certainty-Factor-Fuzzy-Logic-
